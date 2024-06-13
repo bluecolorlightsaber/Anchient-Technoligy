@@ -1,1 +1,1 @@
-# Anchient-Technoligy
+theojoe's anchient technoligy spammer purge
